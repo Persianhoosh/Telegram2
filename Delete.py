@@ -2,7 +2,7 @@
 
 #Fallow me on:
 #https://T.me/AiHoma
-#https://github.com/Aihoma
+#https://github.com/persianhoosh
 #https://medium.com/@AiHoma
 
 
